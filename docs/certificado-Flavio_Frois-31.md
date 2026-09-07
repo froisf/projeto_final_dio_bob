@@ -3,7 +3,7 @@
 
 ## DIO - Digital Innovation One
 
-Certificamos que **"Flavio Frois"** concluiu com sucesso a trilha:
+Certificamos que **Flavio Frois** concluiu com sucesso a trilha:
 
 ---
 
